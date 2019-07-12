@@ -1,3 +1,4 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Hi, I am **Dum3bi**,
+A designer, developer and strategist in Lagos Nigeria
